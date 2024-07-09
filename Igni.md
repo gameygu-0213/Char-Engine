@@ -6,7 +6,7 @@
 
 ### ***What the fuck IS an Igni anyway?***
 
-- He's a Demon who carries around a pitchfork, has ***Slight*** anger issues, has isolated himself for centuries with nothing but his clones in what is essentially a company, and has the ability to shapeshift into other forms, whether unique or an exact copy. (Basically explaining why Micheal looks the way he does, its an alteration of Char's looks to apear more ***"sinister"***)
+- He's a Demon who carries around a pitchfork, has ***Slight*** anger issues, has isolated himself for centuries with nothing but his clones in what is essentially a company, and has the ability to shapeshift into other forms, whether unique or an exact copy. (Basically explaining why Micheal looks the way he does, its an alteration of Char's looks to apear more ***"sinister"*** you might ask why include this, idk i just wanted to :3)
  
 ### ***How come he runs what can be described as a company?***
 
