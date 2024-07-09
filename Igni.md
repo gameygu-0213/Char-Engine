@@ -16,10 +16,30 @@
 
 - After about 2 months you finally get the oppurtunity to choose what you wanna do, you can keep just cleaning the place (About 5% will), you could start working in "Pest" control (about 10% will, see below), or you could start helping out finding ***Anomalies*** in a basic data processing role (about 85% will). this choice is permanant and the only part with traditional "Promotions" is anomaly tracking, however all paths can still ***technically*** reach the top.
 
-- in order to not bore you with more details ill leave the rest out for now, just know that the longer any given clone has stayed there, the more spirals they'll have, also measured in centuries. (I.E. Igni has 4, thus he's stayed for 4 centuries, hes at least 400 years old)
+- on all other paths but helping with anomalies rising to the top is simple, you get a new chance to change jobs again every century.
+
+- to get farther while helping with anomalies you HAVE to be actually active,
+  
+- as a data processor, you, just have to keep files organized. simple really.
+
+- next step is tool repair. not every anomaly requires a weapon, nor is it a good idea to kill them. keeping traps and gadgets from breaking is an important job, because without upkeep, they'd break often. you also have to look out for animals roaming around, given itd be a bad idea if they accidentally hit the wrong button, a LOT of things could go wrong.
+
+- finally (as of now.) the clone who has the only ability to directly contact the leader. Currently taken by crabble, is kind of a hybrid between a manager and a data processor (from above).
+
+- the more spirals they'll have, also measured in centuries. (I.E. Igni has 4, thus he's stayed for 4 centuries, hes at least 400 years old)
 
 - Finally back to Igni, while a clone will never have weapons of their own to assasinate the leader, since they leave so often ***"Accidents"*** can happen. the previous guy (surprisingly never logged their name) died while trying to get an ***"Anomaly"*** under control, and Igni was the one who'd been there the longest, so he'd become the new leader.
  
 ### ***Why's he so asshole-ish?????????? - THE (non)OBLIGATORY JOKE SECTION 🙏***
 
 - Yknow i'd put some cliche thing like "he was bullied as an early clone" but no. he's just a clone of an asshole who was an asshole to be an asshole. ¯\ __ (ツ) __ /¯
+
+### ***Pest Control? why would a completely enclosed, in the middle of the earth building need Pest Control?***
+
+- Well i have already discussed this in the RP but in case you don't know:
+
+- there have been repeat incidents of animals, insects, and other things sneaking into the office via accidentally open portals. but Igni particularly dislikes Cats (what a monster).
+
+- Anyone in "Pest" Control has to get rid of any organism in the office that shouldn't.
+
+# This will probably get updated as the campaign goes on.
