@@ -24,7 +24,7 @@
 
 - next step is tool repair. not every anomaly requires a weapon, nor is it a good idea to kill them. keeping traps and gadgets from breaking is an important job, because without upkeep, they'd break often. you also have to look out for animals roaming around, given itd be a bad idea if they accidentally hit the wrong button, a LOT of things could go wrong.
 
-- finally (as of now.) the clone who has the only ability to directly contact the leader. Currently taken by crabble, is kind of a hybrid between a manager and a data processor (from above).
+- finally (as of now.) the clone who has the only ability to directly contact the leader. Currently taken by Crabble, is kind of a hybrid between a manager and a data processor (from above).
 
 - the more spirals they'll have, also measured in centuries. (I.E. Igni has 4, thus he's stayed for 4 centuries, hes at least 400 years old)
 
