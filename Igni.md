@@ -26,7 +26,7 @@
 
 - finally (as of now.) the clone who has the only ability to directly contact the leader. Currently taken by Crabble, is kind of a hybrid between a manager and a data processor (from above).
 
-- the more spirals they'll have, also measured in centuries. (I.E. Igni has 4, thus he's stayed for 4 centuries, hes at least 400 years old)
+- the more sections on their horns they'll have, also measured in centuries. (I.E. Igni has 4, thus he's stayed for 4 centuries, hes at least 400 years old)
 
 - Finally back to Igni, while a clone will never have weapons of their own to assasinate the leader, since they leave so often ***"Accidents"*** can happen. the previous guy (surprisingly never logged their name) died while trying to get an ***"Anomaly"*** under control, and Igni was the one who'd been there the longest, so he'd become the new leader.
  
