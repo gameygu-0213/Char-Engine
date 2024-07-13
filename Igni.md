@@ -2,6 +2,8 @@
 
 ### [lmao if it wasn't dumb to, i'd have put this in here.](https://vscharimagefiles.neocities.org/ahah.png)
 
+![Igni](https://vscharimagefiles.neocities.org/imgs/Examples/Igni.png)
+
 # Igni - Basic Background/Story
 
 ### ***What the fuck IS an Igni anyway?***
@@ -32,7 +34,7 @@
  
 ### ***Why's he so asshole-ish?????????? - THE (non)OBLIGATORY JOKE SECTION 🙏***
 
-- Yknow i'd put some cliche thing like "he was bullied as an early clone" but no. he's just a clone of an asshole who was an asshole to be an asshole. ¯\ __ (ツ) __ /¯
+- Y'know i'd put some cliche thing like "he was bullied as an early clone" but no. he's just a clone of an asshole who was an asshole to be an asshole. ¯\ __ (ツ) __ /¯
 
 ### ***Pest Control? why would a completely enclosed, in the middle of the earth building need Pest Control?***
 
@@ -43,3 +45,12 @@
 - Anyone in "Pest" Control has to get rid of any organism in the office that shouldn't.
 
 # This will probably get updated as the campaign goes on.
+
+<img src="https://raw.githubusercontent.com/gameygu-0213/VS-Char-Revitilized-Dev-Branch/stable/assets/preload/images/gallery/story/Micheal.png" width=300> (lmao i used HTML code here.)
+
+# Micheal's Connection
+
+### You might be wondering how exactly Igni came to be Micheal.
+
+Well, put simply, it was a job gone wrong.  
+it was supposed to be an easy job, just snag someone who had gotten bit by a creature that altered them physically. This guy had gotten an arm transformed into essentially a spike. after tracking down their location to a certain dimension, he had gotten lost in a large forest where due to having basically no entertainment, decided to use his shapeshifting powers for mischief, spooking animals by turning into twisted, even demented versions of them. then after 2-4 decades later, Char came along. at first it was the same routine of trying to spook him with an altered version of himself, but when that didnt work. he had to rely on.. ***OTHER*** methods. Char would later call this the "Clone Incident", given the use of clones of him and his 2 friends, Trevor the Tridite and Plexi the Protogen. he had forgotten his name at that point, so when questioned by Char about who he was exactly, Igni made up on the spot, the name of Michael, later written as Micheal due to the fact he accidentally switched the "e" and the "a" while writing it the first time. 
